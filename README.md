@@ -1,4 +1,4 @@
-### Ola, Eu sou o Erinaldo lima ✋
+### Ola, Eu sou o naldo lima ✋
 
 ### Bem-vindo ao meu perfil Github! 
 
